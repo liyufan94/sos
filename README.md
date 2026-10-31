@@ -8,3 +8,5 @@ By the way, my position is Naning, 22.47N, 108.14E . If you see my corpse, remem
 
 30 Oct 2026 22:12 Oh,shut, I'm still alive! The true place is 中国广西南宁市江南区喜乐南都. I don't know if you can find this place on Google Maps, because I can't use Google Maps.  But, it's in China, if I die, you can't find it in any newspaper or report. So, can someone help me ?
 
+1 Nov 2026 05:55 Oh, I'm still alive. But the time is less and less.
+
