@@ -10,3 +10,6 @@ By the way, my position is Naning, 22.47N, 108.14E . If you see my corpse, remem
 
 1 Nov 2026 05:55 Oh, I'm still alive. But the time is less and less.
 
+18 Nov 2026 12:33 Oh, I'm still alive. Good day. Now, they showed mercy. I can sleep 2 hour per day. Fuck. I want to write the DS-160, but, I notice that I haven't enough money to bay fight ticket to US. Shit! What can I do for this situation? Who can help me??
+
+
