@@ -12,4 +12,10 @@ By the way, my position is Naning, 22.47N, 108.14E . If you see my corpse, remem
 
 18 Nov 2026 12:33 Oh, I'm still alive. Good day. Now, they showed mercy. I can sleep 2 hour per day. Fuck. I want to write the DS-160, but, I notice that I haven't enough money to bay fight ticket to US. Shit! What can I do for this situation? Who can help me??
 
+20 Now 2026 
+Two good news. 
+First, I sleep 4 hours last night. Amazing. Maybe they don't want to kill me, just torture me? I don't know what they think, but I'm sure that I must leave this country. 
+Second, I get my passport. Yes, nice. Passport NO is ES8900187. Now, I just need a visa, and some money to buy a plane ticket. Pray for myself.
+
+ 
 
