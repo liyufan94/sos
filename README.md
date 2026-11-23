@@ -23,4 +23,7 @@ Second, I get my passport. Yes, nice. Passport NO is ES8900187. Now, I just need
 21 Nov 2026           
 Good, another day for 4 hours sleep. OK, I don't know why, but, I can turn on my computer to write this text. A few days ago, I just want to sleep, all the time. Now, I must finish my visa application quickly. 
 
+23 Nov 2026 12:18 (Beijing Time)         
+4 hours sleep. Good, I think I'm safe now, and my body seems to be fine. Why don't they kill me?
+
 
